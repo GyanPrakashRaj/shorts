@@ -1,3 +1,3 @@
 # anotherone
-## [visit this web site](https://hardcore-mclean-09d55d.netlify.app/)
+## [visit this website](https://hardcore-mclean-09d55d.netlify.app/)
 
